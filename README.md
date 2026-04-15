@@ -1,0 +1,2 @@
+# SilMina
+Logo
